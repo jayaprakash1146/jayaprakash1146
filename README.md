@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jayaprakash
 - 👀 I’m interested in Learning New Things.
-- 🌱 I’m currently learning B.sc Computer Science
+- 🌱 I’m currently learning About Myself ! what I can Do!!
 - 💞️ I’m looking to collaborate on Tech Creators
 - 📫 How to reach me @jayaprakash13102003@gmail.com
 
